@@ -1,4 +1,4 @@
-Chapter: Phone and Video Interviews
+Phone and Video Interviews
 ===================================
 
 In today's digital age, phone and video interviews have become increasingly common in the job application process. This chapter will provide you with valuable insights and practical tips to excel in phone and video interviews and increase your chances of success.

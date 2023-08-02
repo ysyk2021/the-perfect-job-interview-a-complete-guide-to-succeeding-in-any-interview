@@ -1,4 +1,4 @@
-Chapter: Identifying the Company Culture and Values
+Identifying the Company Culture and Values
 ===================================================
 
 In this chapter, we will explore the importance of identifying the company culture and values during a job interview. Understanding the culture and values of a company is crucial in determining whether it aligns with your own beliefs, work style, and career aspirations. By delving into this aspect, you can make informed decisions about the organization you want to be a part of.

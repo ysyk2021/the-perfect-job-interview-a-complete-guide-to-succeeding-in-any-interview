@@ -1,4 +1,4 @@
-Chapter: Group Interviews
+Group Interviews
 =========================
 
 Group interviews, also known as panel interviews or group discussions, are a common selection method employed by many organizations. This chapter will guide you on how to effectively navigate through group interviews and stand out from the competition.

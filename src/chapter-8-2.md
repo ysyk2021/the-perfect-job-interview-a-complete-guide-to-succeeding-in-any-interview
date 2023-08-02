@@ -1,4 +1,4 @@
-Chapter: Strategies for Staying Top-of-Mind with Hiring Managers
+Strategies for Staying Top-of-Mind with Hiring Managers
 ================================================================
 
 After a job interview, it's essential to stay on the radar of hiring managers. This chapter will outline effective strategies to remain top-of-mind and increase your chances of securing the job offer.

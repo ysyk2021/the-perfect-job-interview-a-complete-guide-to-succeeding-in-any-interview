@@ -1,4 +1,4 @@
-Chapter: What to Do If You Don't Get the Job
+What to Do If You Don't Get the Job
 ============================================
 
 Not getting a job offer can be disappointing, but it's crucial to handle the situation gracefully and use it as an opportunity for growth. This chapter will guide you on what to do if you don't get the job and how to turn it into a positive experience.

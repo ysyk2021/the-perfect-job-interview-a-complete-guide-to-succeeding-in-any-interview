@@ -1,4 +1,4 @@
-Chapter: Creating a Compelling Elevator Pitch
+Creating a Compelling Elevator Pitch
 =============================================
 
 In today's competitive job market, having a compelling elevator pitch is essential to make a memorable impression and stand out from other job applicants. An elevator pitch is a concise and persuasive summary of who you are, what you do, and the value you can bring to an organization. This chapter will guide you through the process of creating an effective elevator pitch that captures attention and leaves a lasting impact.

@@ -1,4 +1,4 @@
-Chapter: Commonly Asked Questions About Your Background and Experience
+Commonly Asked Questions About Your Background and Experience
 ======================================================================
 
 In a job interview, questions about your background and experience are common and essential for the interviewer to assess your qualifications, skills, and fit for the role. This chapter provides insights into some commonly asked questions regarding your professional background and experience, along with valuable tips on how to craft effective responses.

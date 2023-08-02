@@ -1,4 +1,4 @@
-Chapter: Understanding Your Unique Value Proposition
+Understanding Your Unique Value Proposition
 ====================================================
 
 In order to succeed in any job interview, it is crucial to understand your unique value proposition - what sets you apart from other candidates and makes you the ideal fit for the position. This chapter will guide you through the process of identifying and communicating your unique value proposition effectively.

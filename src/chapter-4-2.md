@@ -1,4 +1,4 @@
-Chapter: Understanding the Job Requirements and Responsibilities
+Understanding the Job Requirements and Responsibilities
 ================================================================
 
 In this chapter, we will discuss the importance of understanding the job requirements and responsibilities prior to attending a job interview. Being well-informed about what the position entails helps you prepare effectively and present yourself as the ideal candidate for the role.

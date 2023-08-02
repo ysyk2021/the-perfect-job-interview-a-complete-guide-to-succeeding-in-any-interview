@@ -1,4 +1,4 @@
-Chapter: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================
 
 Welcome to "The Perfect Job Interview: A Complete Guide to Succeeding in Any Interview." This book is designed to equip you with the knowledge and strategies necessary to excel in job interviews and secure your dream job. In this chapter, we will provide an overview of the book's contents to give you a clear understanding of what to expect.

@@ -1,4 +1,4 @@
-Chapter: How to Prepare for Each Stage of the Interview Process
+How to Prepare for Each Stage of the Interview Process
 ===============================================================
 
 In this chapter, we will explore how to effectively prepare for each stage of the interview process. By understanding and adequately preparing for each step, you can improve your chances of success and showcase yourself as the ideal candidate.

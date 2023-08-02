@@ -1,4 +1,4 @@
-Chapter: Developing a Strong Personal Brand
+Developing a Strong Personal Brand
 ===========================================
 
 In today's competitive job market, it is essential to develop a strong personal brand that sets you apart from other candidates. This chapter will guide you through the process of building and promoting your personal brand to enhance your chances of success in any job interview.

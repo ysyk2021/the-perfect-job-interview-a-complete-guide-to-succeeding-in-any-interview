@@ -1,4 +1,4 @@
-Chapter: Behavioral Interview Questions
+Behavioral Interview Questions
 =======================================
 
 In this chapter, we will dive into behavioral interview questions, which are commonly used by employers to assess a candidate's past behaviors and predict their future performance. By understanding the purpose of behavioral questions and how to approach them, you can effectively showcase your skills and experiences during the interview process.
