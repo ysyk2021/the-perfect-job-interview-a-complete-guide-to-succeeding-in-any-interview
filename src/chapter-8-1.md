@@ -55,4 +55,3 @@ Final Thoughts
 --------------
 
 Sending thank-you notes and follow-up emails are critical components of the job interview process. These gestures show your professionalism, gratitude, and continued interest in the position. By personalizing each note or email, highlighting key points, and reaffirming your interest, you increase your chances of leaving a positive and lasting impression on the interviewer.
-

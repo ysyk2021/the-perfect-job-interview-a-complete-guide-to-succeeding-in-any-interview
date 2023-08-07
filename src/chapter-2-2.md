@@ -3,7 +3,7 @@ What to Expect During the Interview Process
 
 In this chapter, we will explore what you can expect during the interview process. Understanding each stage of the interview process will help you navigate it more effectively and increase your chances of success.
 
-1. Initial Contact
+1\. Initial Contact
 ------------------
 
 The interview process typically begins with initial contact from the employer. This may come in the form of an email, phone call, or a direct message. During this stage, expect:
@@ -12,7 +12,7 @@ The interview process typically begins with initial contact from the employer. T
 * Scheduling a date and time for the interview.
 * Instructions on the interview format (in-person, phone, video).
 
-2. Pre-Interview Preparation
+2\. Pre-Interview Preparation
 ----------------------------
 
 Before the actual interview, it's crucial to adequately prepare yourself. Expect to:
@@ -23,7 +23,7 @@ Before the actual interview, it's crucial to adequately prepare yourself. Expect
 * Prepare answers to common interview questions and practice your delivery.
 * Prepare thoughtful questions to ask the interviewer.
 
-3. First-Round Interview
+3\. First-Round Interview
 ------------------------
 
 The first-round interview aims to screen candidates and determine whether they meet the basic requirements. Expect:
@@ -34,7 +34,7 @@ The first-round interview aims to screen candidates and determine whether they m
 * Possible technical or skills assessment, depending on the job requirements.
 * An opportunity to ask questions about the company and the role.
 
-4. Second/Final Round Interview
+4\. Second/Final Round Interview
 -------------------------------
 
 If you progress beyond the first round, you may be invited for a second or final round interview. Expect:
@@ -45,7 +45,7 @@ If you progress beyond the first round, you may be invited for a second or final
 * A panel interview with multiple interviewers or meetings with different team members.
 * More specific questions about the company's future goals and your potential contribution.
 
-5. Assessments and Tests
+5\. Assessments and Tests
 ------------------------
 
 Certain roles may require additional assessments or tests to evaluate specific skills or knowledge. Expect:
@@ -56,7 +56,7 @@ Certain roles may require additional assessments or tests to evaluate specific s
 * Personality assessments to assess your fit with the company culture and team dynamics.
 * In some cases, background checks, reference checks, or drug tests may be conducted.
 
-6. Offer Stage
+6\. Offer Stage
 --------------
 
 If you successfully navigate the interview process, you may receive a job offer. Expect:

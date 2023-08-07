@@ -98,4 +98,3 @@ Video interviews, conducted through platforms such as Zoom or Skype, allow emplo
 * Address any points discussed during the interview that you may have missed.
 
 By following these practical tips, you can successfully navigate phone and video interviews with confidence and impress potential employers. Remember to adapt your interview style to the specific format while showcasing your qualifications and unique value throughout the conversation.
-

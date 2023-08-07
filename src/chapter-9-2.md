@@ -54,4 +54,3 @@ Final Thoughts
 --------------
 
 Group interviews can be challenging, but they provide an opportunity for you to shine as a collaborative and dynamic team player. Remember to strike a balance between expressing your own ideas and actively listening to others. By demonstrating your ability to contribute effectively within a group setting, you can increase your chances of making a positive and lasting impression on the interviewers.
-
