@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-====================================================
 
 In this chapter, we will explore what you can expect during the interview process. Understanding each stage of the interview process will help you navigate it more effectively and increase your chances of success.
 

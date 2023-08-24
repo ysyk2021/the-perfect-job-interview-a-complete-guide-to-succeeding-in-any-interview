@@ -1,4 +1,3 @@
-# Dealing with Rejection and Disappointment
 
 No matter how well-prepared you are, rejection and disappointment are inevitable parts of the job search process. It can be disheartening to receive a rejection after putting in so much effort during the interview process. However, it's crucial to remember that rejection is not a reflection of your worth or abilities. In this chapter, we will explore strategies to help you cope with rejection and disappointment in a healthy and constructive manner.
 

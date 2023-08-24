@@ -1,5 +1,3 @@
-Conducting Research About the Company
-==============================================
 
 In this chapter, we will explore the importance of conducting research about the company before a job interview. Thoroughly researching the organization you are interviewing with is a crucial step in preparing for a successful interview. This chapter will provide guidance on how to effectively conduct research and gather relevant information that will impress the interviewer and demonstrate your genuine interest in the company.
 

@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we have explored a range of topics related to job interviews, including:
 

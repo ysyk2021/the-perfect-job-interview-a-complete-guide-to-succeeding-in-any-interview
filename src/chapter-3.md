@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Personal Brand
-=======================================
 
 Crafting a strong personal brand is essential for standing out in the job market and succeeding in any interview. In this chapter, we will explore strategies for developing a strong personal brand.
 

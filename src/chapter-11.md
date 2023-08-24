@@ -1,5 +1,3 @@
-Chapter 11: Handling Job Offers and Rejections
-==============================================
 
 After going through the job interview process, you may receive a job offer or a rejection. In this chapter, we will discuss how to evaluate job offers, how to deal with rejection, and how to move forward in your job search.
 

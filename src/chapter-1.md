@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Job interviews are a crucial step in the job search process, and proper preparation is essential for success. In this chapter, we will explore the importance of interview preparation and provide an overview of the book's contents.
 

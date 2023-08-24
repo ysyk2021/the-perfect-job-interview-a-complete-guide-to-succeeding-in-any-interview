@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 There are several different types of job interviews that job seekers may encounter during the job search process. In this chapter, we will explore the most common types of job interviews and strategies for preparing for each one.
 

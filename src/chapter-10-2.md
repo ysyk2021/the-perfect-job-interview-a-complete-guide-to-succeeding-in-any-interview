@@ -1,5 +1,3 @@
-Tips for Researching and Determining Fair Compensation
-===================================================================================================
 
 Negotiating salary and benefits can be a tricky part of the job interview process, but it's important to ensure that you are being fairly compensated for your skills and experience. In this chapter, we will discuss tips for researching and determining fair compensation.
 

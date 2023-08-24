@@ -1,5 +1,3 @@
-Chapter 4: Researching the Company and Position
-===============================================
 
 Researching the company and position is a critical step in preparing for a job interview. In this chapter, we will explore strategies for conducting effective research.
 

@@ -1,5 +1,3 @@
-Building Rapport and Connection with the Interviewer
-=============================================================
 
 In any job interview, building rapport and a strong connection with the interviewer is essential. Establishing a positive relationship can greatly influence the outcome of the interview and increase your chances of success. This chapter will guide you on how to effectively build rapport and connection with the interviewer, allowing you to create a favorable impression and demonstrate your fit for the role.
 

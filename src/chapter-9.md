@@ -1,5 +1,3 @@
-Chapter 9: Navigating Special Interview Circumstances
-=====================================================
 
 Job interviews can take many different forms, and job seekers need to be prepared for a variety of interview situations. In this chapter, we will explore strategies for navigating special interview circumstances.
 

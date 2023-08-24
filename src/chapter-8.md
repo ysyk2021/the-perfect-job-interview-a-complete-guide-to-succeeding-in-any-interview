@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 Following up after a job interview is an essential step in the hiring process. In this chapter, we will explore strategies for following up effectively.
 

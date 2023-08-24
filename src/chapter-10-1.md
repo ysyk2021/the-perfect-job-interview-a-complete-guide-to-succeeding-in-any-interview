@@ -1,5 +1,3 @@
-Understanding the Salary Negotiation Process
-=========================================================================================
 
 Negotiating salary and benefits can be a daunting process, but it's an essential part of the hiring process. In this chapter, we will explore strategies for understanding the salary negotiation process.
 

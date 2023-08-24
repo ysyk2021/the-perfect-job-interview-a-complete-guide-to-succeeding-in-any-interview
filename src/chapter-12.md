@@ -1,5 +1,3 @@
-Chapter 12: Advanced Interviewing Techniques
-============================================
 
 In addition to the basics of interview preparation and execution, there are advanced techniques that can help candidates stand out from the competition. In this chapter, we will explore some of these techniques.
 
